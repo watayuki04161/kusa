@@ -1,2 +1,2 @@
 # kusa
-わあああ
+nikoniko
